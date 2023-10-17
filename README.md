@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **yogeshtalaskar3110@gmail.com**
 
-- ⚡ Fun fact **Cool😎**
+- ⚡ Fun fact **Mr. Cool😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
