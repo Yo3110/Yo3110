@@ -1,4 +1,3 @@
-![image](https://github.com/Yo3110/Yo3110/assets/143214362/bf9b65ac-739c-4c99-9ca7-c3c1e39e3f5b)
 
 <h1 align="center">Hi 👋, I'm Yogesh Talaskar</h1>
 <h3 align="center">A passionate Data Analytics from India</h3>
