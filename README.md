@@ -1,3 +1,5 @@
+![Purple Modern Gaming Youtube Banner](https://github.com/Yo3110/Yo3110/assets/143214362/1872c5e9-8c5e-483e-8eaf-810f44399cf1)
+
 <h1 align="center">Hi 👋, I'm Yogesh Talaskar</h1>
 <h3 align="center">A passionate Data Analytics from India</h3>
 
